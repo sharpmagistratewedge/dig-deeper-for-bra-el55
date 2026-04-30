@@ -1,4 +1,4 @@
-
+new dig deeper for brainrots Script offers the most advanced dig deeper for brainrots Script, with no cooldown and one-hit kill. Perfect for
 
 
 
